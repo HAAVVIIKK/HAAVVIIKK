@@ -2,7 +2,7 @@
 
 ![jonshi](https://github.com/user-attachments/assets/f0791c21-ec2a-406e-8518-8d1b07eb27ab)
 
-![Uploading nghhhhhhhhh.gif…]()
+![nghhhhhhhhh](https://github.com/user-attachments/assets/4efae917-15e7-4fce-8eb7-026faf1a2d46)
 
 ![johnny-cage](https://github.com/user-attachments/assets/c5ffe0ec-7e6e-4aca-a624-0f4567f72843)
 
