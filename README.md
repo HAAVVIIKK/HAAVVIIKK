@@ -4,7 +4,9 @@
 
 ![nghhhhhhhhh](https://github.com/user-attachments/assets/4efae917-15e7-4fce-8eb7-026faf1a2d46)
 
-![johnny-cage](https://github.com/user-attachments/assets/c5ffe0ec-7e6e-4aca-a624-0f4567f72843)
+![myfavfags](https://github.com/user-attachments/assets/e199b999-e39b-4aea-9040-fe2a9669a3e4)
+
+![postalspin](https://github.com/user-attachments/assets/53abd4bd-ebc4-47ec-9465-6446267fc931)
 
 ![i hate him so much](https://github.com/user-attachments/assets/d9e834bf-d2a0-4508-9380-fd2f3a833a3f)
 
