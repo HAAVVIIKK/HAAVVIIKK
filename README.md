@@ -1,9 +1,6 @@
 
+![image title](https://rushter.com/counter.svg)
 
-![Untitled210_20250107001420__fliter--dark-green-sepia__channel--red__mode--color](https://github.com/user-attachments/assets/a7b6c855-104a-4fe6-941f-f0bf1326039b) <--- boyfriends im afraid
-
-![tumblr_9cf633744f75998e8c49183ed58f7317_c28d32ee_2048](https://github.com/user-attachments/assets/5275023c-8786-4b8a-9568-f663c36d7911)
-
-![tumblr_2060fb7df798f3d98c8650db173ceac2_d506b4b0_2048](https://github.com/user-attachments/assets/fa4e86e4-a763-4db7-816e-3ccf7aa7c067)
+![Zrzut_ekranu_2025-02-05_111640-removebg-preview](https://github.com/user-attachments/assets/2729343f-fa04-43b6-bafe-2662b3cc7810)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
