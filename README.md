@@ -8,4 +8,4 @@
 [strawpage](https://dexterrrrerotoppph.straw.page/) . [atabook](https://dexter.atabook.org/) 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
