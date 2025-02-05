@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=red)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=purple)
 
 ![Zrzut_ekranu_2025-02-05_111640-removebg-preview](https://github.com/user-attachments/assets/2729343f-fa04-43b6-bafe-2662b3cc7810)
 
