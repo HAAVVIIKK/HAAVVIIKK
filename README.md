@@ -6,7 +6,7 @@
 ![345da4cf79f4a2bffbdb703e2e053258-removebg-preview](https://github.com/user-attachments/assets/8c9fdb3d-411d-428d-9efe-b54f63ab3f1a)
 
 
-[strawpage](https://dexterrrrerotoppph.straw.page/) . [atabook](https://dexter.atabook.org/) 
+[strawpage](https://dexterhavik.straw.page/) . [atabook](https://dexter.atabook.org/) 
 <div align="center">
 
 ![Zrzut_ekranu_2025-02-05_151920-removebg-preview](https://github.com/user-attachments/assets/ce332f7f-06c6-447d-b621-553b907b5f5e)
