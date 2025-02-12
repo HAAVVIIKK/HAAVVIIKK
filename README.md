@@ -2,7 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=HAAVVIIKK&color=red)
 
-![Zrzut_ekranu_2025-02-05_111640-removebg-preview](https://github.com/user-attachments/assets/2729343f-fa04-43b6-bafe-2662b3cc7810)![Zrzut_ekranu_2025-02-05_111516-removebg-preview (1)](https://github.com/user-attachments/assets/898b8968-fd24-4bbb-af49-a5d7fa622ef6)
+
+![345da4cf79f4a2bffbdb703e2e053258-removebg-preview](https://github.com/user-attachments/assets/8c9fdb3d-411d-428d-9efe-b54f63ab3f1a)
 
 
 [strawpage](https://dexterrrrerotoppph.straw.page/) . [atabook](https://dexter.atabook.org/) 
