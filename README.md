@@ -16,3 +16,5 @@ sh free for : idk like a week. I'm not planning to stop, ever. I'll do everythin
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 hey did i mention that im not mentally stable and u int at ur own risk
+
+don't bother sending me threats and shit, i dont give a fuck about them anymore. lmao imagine sending threats to a child on the internet anyway
