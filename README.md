@@ -17,4 +17,4 @@ sh free for : idk like a week. I'm not planning to stop, ever. I'll do everythin
 
 hey did i mention that im not mentally stable and u int at ur own risk
 
-don't bother sending me threats and shit, i dont give a fuck about them anymore. lmao imagine sending threats to a child on the internet anyway
+don't bother sending me threats and shit, i dont give a fuck about them anymore. lmao imagine sending threats to people on the internet anyway
