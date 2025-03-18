@@ -3,8 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=HAAVVIIKK&color=red)
 
 
-![Zrzut ekranu 2025-03-06 160444](https://github.com/user-attachments/assets/85eb454e-b330-4124-a722-56840fba3412)
-
+![Zrzut_ekranu_2025-03-15_235840-removebg-preview (1)](https://github.com/user-attachments/assets/481093dc-f42c-42bb-a41e-c1e0ac185197)
 
 
 [strawpage](https://dexterhav.straw.page) . [atabook](https://dexter.atabook.org/) 
