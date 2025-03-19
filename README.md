@@ -18,3 +18,6 @@ sh free for : idk like a week. I'm not planning to stop, ever. I'll do everythin
 hey did i mention that im not mentally stable and u int at ur own risk
 
 don't bother sending me threats and shit, i dont give a fuck about them anymore. lmao imagine sending threats to people on the internet anyway
+
+![Zrzut ekranu 2025-03-19 195044](https://github.com/user-attachments/assets/717a11d4-4cdd-4aea-bdad-ce45ccea0b28)
+mmmyy discord
