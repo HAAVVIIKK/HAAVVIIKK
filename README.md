@@ -11,7 +11,7 @@
 
 ![Zrzut_ekranu_2025-02-05_151920-removebg-preview](https://github.com/user-attachments/assets/ce332f7f-06c6-447d-b621-553b907b5f5e)
 
-sh free for : idk like a week. I'm not planning to stop, ever. I'll do everything to keep my baby happy
+sh free for : idk like a week. I'm not planning to stop, ever. I'll do everything to let people know how much I love my baby
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
