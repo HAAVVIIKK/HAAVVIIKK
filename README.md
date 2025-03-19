@@ -27,3 +27,5 @@ don't bother sending me threats and shit, i dont give a fuck about them anymore.
 
 ![Zrzut ekranu 2025-03-19 195044](https://github.com/user-attachments/assets/717a11d4-4cdd-4aea-bdad-ce45ccea0b28)
 mmmyy discord
+
+I swear i almost always act 'normal' i js sometimes crashout ummm
