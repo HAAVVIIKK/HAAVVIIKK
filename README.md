@@ -13,7 +13,7 @@
 
 sh free for : idk like a week. I'm not planning to stop, ever. I'll do everything to prove i love my baby the most
 
-doubles dni i will literally fucking kill myself I love my husband more than anyone else <3 <3<33333
+doubles dni i will literally fucking kill myself . he dont love u buh i literally have his name in my skin forever <3/33333333
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
