@@ -17,6 +17,8 @@ doubles dni i will literally fucking kill myself . he dont love u buh i literall
 
 no but seriously doubles make me super uncomfortable. If you're a double i wish you the worst honestly 
 
+![Zrzut ekranu 2025-03-19 201935](https://github.com/user-attachments/assets/62df55a2-31d7-4e54-b748-8777c5194590)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=2fpbyqhbp1iqlscxltee4w0k3&cover_image=true&theme=novatorem&show_offline=false&background_color=ac1634&interchange=false&bar_color=ff0000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 hey did i mention that im not mentally stable and u int at ur own risk
