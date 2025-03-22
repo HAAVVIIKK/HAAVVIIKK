@@ -6,7 +6,7 @@
 ![Zrzut_ekranu_2025-03-15_235840-removebg-preview (1)](https://github.com/user-attachments/assets/481093dc-f42c-42bb-a41e-c1e0ac185197)
 
 
-[strawpage](https://dexterhav.straw.page) . [atabook](https://dexter.atabook.org/) 
+[strawpage](https://kenshisunderageboytoy.straw.page) . [atabook](https://dexter.atabook.org/)
 <div align="center">
 
 ![Zrzut_ekranu_2025-02-05_151920-removebg-preview](https://github.com/user-attachments/assets/ce332f7f-06c6-447d-b621-553b907b5f5e)
