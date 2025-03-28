@@ -15,6 +15,8 @@ sh free for : idk like a week. I'm not planning to stop, ever. I'll do everythin
 
 doubles dni i will literally fucking kill myself . he dont love u buh i literally have his name in my skin forever <3/33333333
 
+yes i treat my baby like hes a real person 
+
 no but seriously doubles make me super uncomfortable. If you're a double i wish you the worst honestly 
 
 ![Zrzut ekranu 2025-03-19 201935](https://github.com/user-attachments/assets/62df55a2-31d7-4e54-b748-8777c5194590)
