@@ -3,7 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=HAAVVIIKK&color=red)
 
 
-![Zrzut_ekranu_2025-03-15_235840-removebg-preview (1)](https://github.com/user-attachments/assets/481093dc-f42c-42bb-a41e-c1e0ac185197)
+![Zrzut_ekranu_2025-03-26_231740-removebg-preview](https://github.com/user-attachments/assets/1722c6f3-c590-4848-b085-6cadc454a8ec)
+
 
 
 [strawpage](https://kenshisunderageboytoy.straw.page) . [atabook](https://dexter.atabook.org/)
@@ -11,13 +12,13 @@
 
 ![Zrzut_ekranu_2025-02-05_151920-removebg-preview](https://github.com/user-attachments/assets/ce332f7f-06c6-447d-b621-553b907b5f5e)
 
-sh free for : idk like a week. I'm not planning to stop, ever. I'll do everything to prove i love my baby the most
+blehhh 
 
-doubles dni i will literally fucking kill myself . he dont love u buh i literally have his name in my skin forever <3/33333333
+doubles heavy dni, sorry but he doesnt love you. I'm the one who has his name in my skin forever :/
 
 yes i treat my baby like hes a real person 
 
-no but seriously doubles make me super uncomfortable. If you're a double i wish you the worst honestly 
+If you're a double i wish you the worst honestly 
 
 ![Zrzut ekranu 2025-03-19 201935](https://github.com/user-attachments/assets/62df55a2-31d7-4e54-b748-8777c5194590)
 
@@ -27,7 +28,11 @@ hey did i mention that im not mentally stable and u int at ur own risk
 
 don't bother sending me threats and shit, i dont give a fuck about them anymore. lmao imagine sending threats to people on the internet anyway
 
-![Zrzut ekranu 2025-03-19 195044](https://github.com/user-attachments/assets/717a11d4-4cdd-4aea-bdad-ce45ccea0b28)
-mmmyy discord
 
-I swear i almost always act 'normal' i js sometimes crashout ummm
+![Zrzut ekranu 2025-03-29 174338](https://github.com/user-attachments/assets/657a541e-987c-467d-bf6a-03e413ee044b)
+mmmy discord
+
+I swear, I almost always act 'normal' I js sometimes crash out ummm
+
+
+![Zrzut ekranu 2025-03-28 224027](https://github.com/user-attachments/assets/bd214d6e-682d-46aa-916f-871909a0e574)
