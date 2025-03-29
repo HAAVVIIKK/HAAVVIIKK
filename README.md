@@ -2,8 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=HAAVVIIKK&color=red)
 
-certified hippie
-
+certified no lifer
 ![Zrzut_ekranu_2025-03-26_231740-removebg-preview](https://github.com/user-attachments/assets/1722c6f3-c590-4848-b085-6cadc454a8ec)
 
 
